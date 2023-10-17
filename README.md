@@ -1,2 +1,8 @@
-# escritores-del-mas-alla
-Repositorio en donde se recopilan los escritos del grupo de "Escritores del mas alla".
+# Escritores del mas alla
+
+*Escritores:*
+- [Carlos](carlos/) 
+- [Fernanda](fernanda/) 
+- [Isaac](isaac/) 
+- [Sergio](sergio/)
+- [Victor](victor/)
