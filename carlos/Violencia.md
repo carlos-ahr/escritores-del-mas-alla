@@ -1,0 +1,3 @@
+Me despierta la notificacíon de mi celular como de costrumbre, es obscuro afuera y no se que hora son. Aun con sueño reviso el celular, han pasado 4hr y no hice nada en toda la tarde. La mentada notificación no es mas que otra noticia de "DOSTV", otro feminicido en esta ciudad tan desmoralizada e insensibilizada.
+
+A veces me pregunto en que momento nos desviamos tanto del camino, con este van 34 en lo que va del año. Todos en las mismas circunstancias, una pobre tonta que iba sola en la noche despues de salir de fiesta desaparece toda la madrugada y aparece violada y mutilada en un callejón.
